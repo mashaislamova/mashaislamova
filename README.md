@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity,ethical hacking
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ıdk
-- 📫 How to reach me +905310234425 on wp
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: always go try the imposible man
 
